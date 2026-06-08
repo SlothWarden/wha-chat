@@ -11,7 +11,7 @@ title: "WHA Acceptation Page"
 8. You have to have the owners on your side before kicking.
 9. Don't remove these rules.
 10. Put your name if you are going to link: James Adams, Simon Peter R., I might go to Link (Marcos),(Chris), Ruby G☆ , Leah a💅, Elliot S‧₊˚♪ ₊. Ryan H Sage Q ❤ Claire H, Isaac S.💀
-11. Before you kick, consult the owners. If you want to kick someone please Direct Message (James Adams, or Simon Peter Rhoades, or Hudson Klostermeyer) if you want to kick.
+11. Before you kick, consult the owners. If you want to kick someone please Direct Message (James Adams, Simon Peter Rhoades, Hudson Klostermeyer, or Chris Newkirk) if you want to kick.
 12. If you know anybody in Wilson Hill Academy, then please invite them.
 13. BANNED LIST: Cort B, Issac C.
 
